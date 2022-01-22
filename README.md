@@ -1,1 +1,1 @@
-# Hello-world
+Hello, my name is Sheetal Maddi. I have done my Bachelor's in Computer Science. I was always fascinated by coding and technology and wanted to make it my career that is the reason I chose this course. I expect to learn a lot of new things and develop a complete new website from scratch with the help of this subject Website Design.
